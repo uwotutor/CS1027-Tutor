@@ -1,5 +1,5 @@
-# CS1027-Tutor
-CS1027 Tutor
+# CS1027-Tutor 
+CS1027 Tutor Computer Science Fundamentals II
 Email: uwocstutor@gmail.com
 Western University Computer Science Tutor
 
