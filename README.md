@@ -10,4 +10,4 @@ I can help you understand the fundamental concepts and teach you how to code in 
 
 Congratulations on finding me! Consider yourself lucky because I can take you from zero to hero in this field. I have a very lucrative full-time day job. I am not motivated by money but by the desire to make an impact on this world through helping you. I owe my success to my CS degree from Western, and I consider mentoring young students to land their first top-tier big tech internships as my way of giving back to our school.
 
-Yes, I definitely aim high because failing any CS courses under my watch is impossible. At least, it has never happened before. 416-two two zero-two three 6 6
+Yes, I definitely aim high because failing any CS courses under my watch is impossible. At least, it has never happened before. Call or text me at: 416 - tw0 tw0 z3r0 - two three 6 s1x
